@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @richarduk99 
+- 👀 I’m interested in the field of Data Science
+- 🌱 I’m currently learning algorithms in machine learning
+- 💞️ I’m looking to use my knowledge in the field of data science
+- 📫 How to reach me richardselvaraj77@gmail.com
+- 😄 Pronoouns ? i wish we lived in a older era .
